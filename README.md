@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @GeographyEnthusiast
+- 👋 Hi, I’m 
 - 👀 I’m interested in history, geography, and I cube as a hobby.
 - 🌱 I’m currently learning how to cope with death.
-- 💞️ I’m looking to collaborate on social skilz.
-- 📫 How to reach me thegeographydude69420@gmail.com (yes I've made this my personality trait).
+- 💞️ I’m looking to collaborate on Joe Mama.
+- 📫 How to reach me x.com/realskellyboi
 - 😄 Pronouns: he/his/him.
 - ⚡ Fun fact: bruh seriously?.
 
