@@ -1,5 +1,4 @@
-- 👋 Hi, I’m 
-- 👀 I’m interested in history, geography, and I cube as a hobby.
+- 👋 Hi, I’m @realskellyboi
 - 🌱 I’m currently learning how to cope with death.
 - 💞️ I’m looking to collaborate on Joe Mama.
 - 📫 How to reach me x.com/realskellyboi
